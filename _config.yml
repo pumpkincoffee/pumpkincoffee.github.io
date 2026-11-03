@@ -1,6 +1,6 @@
-title: coffee
+title: for coffee
 description: >- # this means to ignore newlines until "baseurl:"
-  & pumpkin cheesecake
+  from pumpkin
 baseurl: "/" 
 url: "https://pumpkincoffee.github.io" 
 github_username:  pumpkincoffee
