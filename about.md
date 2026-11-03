@@ -4,4 +4,5 @@ title: About
 author: "pumpkin"
 ---
 
-for coffee, from pumpkin.
+for coffee and pumpkin, 
+from pumpkin.
