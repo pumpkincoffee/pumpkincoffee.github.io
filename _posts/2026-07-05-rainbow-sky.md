@@ -1,0 +1,22 @@
+---
+layout: post
+title: "rainbow sky"
+date: 2026-07-05
+author: "pumpkin"
+categories: memento
+---
+
+
+It is my last day. I woke up around 5 am and I still saw a lot of fishermen in the ocean. They worked very hard while I was sleeping. After the morning prayer, I continued to sleep a bit more before checking out from the guesthouse. I took my laundry from the Vietnamese haelmoni, I really wanted to communicate with her but she only speaks Vietnamese. Hence, I uttered thank you in Korean and she seemed to understand. When I was visiting her in the kitchen yesterday, she was cleaning mussels and clams. She offered me water. The kitchen and her being there reminded me of my grandma.<br>
+<br>
+I went to Hyeopjae beach today. It is very beautiful. I saw peculiar fishes that I still don't recognize. Was it baby shark? That seems dangerous but they did look like a shark haha. There were many seaweed in the shore, people also made stacking stones for wishes. I have been doing my prayers in the beach twice. It was a different experience, I felt like I was closer to Him. I didn't stand up as I wonder where I should do it. In Japan, I never hesitate to pray in public because people respect each other well. So I sat on a bench and faced the qibla.<br>
+<br>
+I visited Hallim Park after that. Oh I had a convenience store gimbap and haagen dasz for brunch. It was good and cheap. I have been eating less, my appetite has been back but I somehow can't eat the way I did. However, don't get me wrong, I feel healthier because my period is less cramp-y due to fewer carbs intake. It is a major discovery, I wish Nature has a dedicated journal volume for something like this haha.<br>
+<br>
+Hallim Park was huge and it has a lot of flower collections, my kind of park. I am in love with lotus flower, they are so beautiful. The kind that carries strength and gentleness. Ah, my poetic self needs to stop bleeding. There was also a bonsai exhibit. The oldest one was the 300 years old bonsai. It survived three centuries, it lasts as long as the VOC occupation. There is a tree called the Sahabi tree, it witnessed The Prophet’s caravan journey. I wonder, “How would it feel like to be alive for hundreds of years?”. The bonsai tree looks healthy though. The area was serene and there were not many people in the park. It was pouring, yet I continued my steps with an umbrella anyway. After a while, it was drizzling and the rain stopped. They played Yiruma’s *River Flows in You* when I was in the bonsai area. Ah, they are too harsh, of course I cried. I was having a conversation with God again.<br>
+<br>
+This morning, I took a wrong bus and ended up walking for 20 minutes. Little did I know, the path that I took had this vast field of flowers. After returning from the Hallim park in the late afternoon, I stopped at the airport, wishing to purchase omiyage for the postdoc who mentors me in Seoul. Upon my return to the hotel, I took the wrong bus again. Of course I did, haha. I was running and shouting, "kisa-nim, kisa-nim" which means Mr. Driver. Most Jeju buses only have limited operating hours until 6 pm. It is just that the Naver Maps doesn't automatically load quickly, so it keeps giving me directions from the previous point. There was also another hotel with the same name as the hotel I stay at. However, the wrong bus that I took in the morning taught me something, “I can get out in the next stop then take another bus. Or I might find another path which could surprise me”. Thus, I got out in the next stop. It turned out that the stop was only 15 minutes walk from the hotel where I stay tonight, so I walked there.<br> 
+<br>
+Just a few steps from the bus stop, there was a rainbow, a huge rainbow in the sky!!! I felt like God was trying to reassure me. I was completely bewildered. It felt like yesterday, when we had a foggy and rainy morning, then it was suddenly sunny in the afternoon. We even saw dolphins which rarely show themselves. Of course, the weather explained the rainbow, but I felt an immense relief and joy after my crying session among the hundred years bonsai in the Hallim Park. I felt contentment and happiness when I saw it. I might not witness the rainbow if I took the correct bus, because the rainbow quickly disappeared.<br>
+<br>
+I hope I can graduate next year, I feel like I could but the path seems foggy now. I can't see anything although I keep walking. Well, perhaps that's exactly the point, to keep walking, even without fully seeing the destination.<br>

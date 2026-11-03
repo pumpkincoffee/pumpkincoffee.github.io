@@ -1,0 +1,20 @@
+title: coffee
+description: >- # this means to ignore newlines until "baseurl:"
+  & pumpkin cheesecake
+baseurl: "/" 
+url: "https://pumpkincoffee.github.io" 
+github_username:  pumpkincoffee
+
+# Build settings
+markdown: kramdown
+
+
+plugins:
+  - jekyll-paginate
+
+paginate: 5
+paginate_path: "/page/:num/"
+hide_credits: true
+hide_search: true
+future: true
+
