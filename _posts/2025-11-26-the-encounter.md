@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "le coup de foudre"
+title: "the encounter"
 date: 2025-11-26
 author: "pumpkin"
 categories: memento
