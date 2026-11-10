@@ -25,8 +25,8 @@ Aku tahu, alasannya terdengar sangat sederhana. Akan tetapi, aku mengalami impia
 <br>
 Satu pertanyaan terjawab. Untuk menjawab sisanya, aku mencoba apa yang kulakukan setiap hari, belajar dan membaca buku, haha. Aku mencoba tumbuh menjadi orang yang lebih baik, mengaplikasikan hal-hal yang kupelajari. Tentu saja, semuanya terasa sangat sulit, bagaikan berjalan di tepi jurang saat hujan deras. Aku terkadang menulis dan menangis di malam hari, seperti hari ini.<br>
 <br>
-Aku sudah tidak takut kehilangan diriku sendiri lagi. Belajar menjadi seorang ibu, ternyata aku tidak kehilangan diriku, malahan aku lebih banyak membaca, lebih banyak belajar, lebih banyak berkesperimen. Ternyata identitas diri tidak akan hilang semudah itu, haha.<br>
+Aku sudah tidak takut kehilangan diriku sendiri lagi. Belajar menjadi seorang ibu, ternyata aku tidak kehilangan diriku, malahan aku lebih banyak membaca, lebih banyak belajar, lebih banyak bereksperimen. Ternyata identitas diri tidak akan hilang semudah itu, haha.<br>
 <br>
-Aku masih tidak tahu apakah aku akan dianugerahi seorang anak. Aku pun tidak tahu apakah aku akan dianugerahi seorang pasangan. Akan tetapi, aku sudah tahu jawaban akan pertanyaan-pertanyaan yang riuh di kepalaku itu.<br>
+Aku masih tidak tahu apakah aku akan dianugerahi seorang anak. Aku pun tidak tahu apakah aku akan dianugerahi seorang pasangan. Akan tetapi, aku sudah tahu jawaban atas pertanyaan-pertanyaan yang riuh di kepalaku itu.<br>
 <br>
 Kemudian, tibalah keriuhan selanjutnya. Apakah aku bisa menjadi istri yang baik? Apakah aku siap menjadi seorang istri? Apakah aku mau menjadi seorang istri?
